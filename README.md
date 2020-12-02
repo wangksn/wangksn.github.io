@@ -1,1 +1,1 @@
-## AirCharge.cn is for sell ,Email:wangksn@gmail.com
+## AirCharge.cn is for sale ,please contact Email:wangksn@gmail.com
